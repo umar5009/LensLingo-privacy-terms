@@ -46,6 +46,6 @@ These Terms are governed by applicable local laws where the publisher is establi
 
 ## Contact
 
-contact@lenslingo.app
+muzaffarumar768@gmail.com
 
 [Privacy Policy](privacy-policy.md)
