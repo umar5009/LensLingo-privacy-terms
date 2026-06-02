@@ -56,4 +56,4 @@ LensLingo is not directed at children under 13. We do not knowingly collect pers
 
 ## Contact
 
-Questions about privacy: contact@lenslingo.app
+Questions about privacy: muzaffarumar768@gmail.com
